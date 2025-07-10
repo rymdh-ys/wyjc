@@ -3,7 +3,7 @@
 午夜剧场是一个以提供午夜时段影视内容为主的在线平台，通常在晚上12点（0点）开始播出或展示各类影视作品。它不仅是一个观看电影和电视剧的场所，更是一个为追求独特观影体验的用户量身打造的平台。午夜剧场的节目特点往往以紧张悬疑、引人入胜的情节和深刻的人物描写为主，适合那些热爱挑战自我、追求刺激的观众。此外，午夜剧场还提供高清画质和流畅的播放体验，让用户可以随时随地通过手机、电脑或电视等设备观看最新的电影和电视剧。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14398.html" target="_blank" ><strong>午夜剧场最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshi" target="_blank" ><strong>影视在线看</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
